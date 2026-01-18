@@ -2,7 +2,7 @@
 - 👀 I’m interested in ,well a lot of things
 - 🌱 I’m currently learning  and looking for ways to better myself
 - 💞️ I’m looking to collaborate on anything that is impactful 
-- 📫 How to reach me--- <email: alhakansol@gmail.com >, <whatsapp: +23232830657>
+- 📫 How to reach me--- <email: alhakan04@gmail.com >, <whatsapp: +23232830657>
 
 
 <!---
